@@ -1,2 +1,2 @@
 Hello !!
-Shine bright, locked in !
+Nan CQFD.
